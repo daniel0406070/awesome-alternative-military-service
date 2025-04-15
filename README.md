@@ -89,7 +89,6 @@
 * [이제이엔(EJN)](https://ejn.team) (트윕/트게더)
 * [레몬베이스(Lemonbase)](https://lemonbase.team)
 * [핵클(Hackle)](https://www.hackle.io)
-* [힐링페이퍼](https://healingpaper.career.greetinghr.com/) (강남언니) 
 
 ### 복무만료 후 계속 근무업체
 
